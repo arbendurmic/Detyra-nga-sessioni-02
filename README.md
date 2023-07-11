@@ -1,3 +1,3 @@
 # MINI CV
 
-By:  & Arben Durmic
+By: Ledon Ramadani & Arben Durmic
